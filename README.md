@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FreddieM-lcwc
+- 👀 I’m interested in games/computers
+- 🌱 I’m currently learning T level Digital
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me (email) 30078053@lcwc.ac.uk
